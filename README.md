@@ -1,0 +1,1 @@
+# GUJARATI-OCR
